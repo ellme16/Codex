@@ -15,7 +15,7 @@
 |:---:|:---:|:---:|:---:|
 | **100%** | $20 / $50 / $100 / $200 | **15 天** | **即时** |
 
-**👉 [立刻去抽奖](https://spectracodeai.com/codex.html)**
+**👉 [立刻去抽奖](https://spectracodeai.com/codex.html)**：[https://spectracodeai.com/codex.html](https://spectracodeai.com/codex.html)
 
 > 免费下载注册 · 注册后额度即时到账
 
@@ -118,8 +118,8 @@
 - **开始**：2026 年 4 月 16 日 10:00
 - **截止**：2026 年 4 月 23 日 00:01
 - 持续 7 天，活动结束后不再发放福利金
-- 活动页：[立刻去抽奖](https://spectracodeai.com/codex.html)](https://spectracodeai.com/codex.html)
-- 官网：[spectracodeai.com](https://spectracodeai.com)
+- 活动页：[https://spectracodeai.com/codex.html](https://spectracodeai.com/codex.html)
+- 官网：[https://spectracodeai.com/](https://spectracodeai.com)
 
 > **免责声明：** 本活动每位用户限参与一次。同一电脑/网络环境多次注册视为同一用户，平台有权取消重复领取的福利金。使用临时邮箱、代理 IP、虚拟设备注册的账号，平台有权取消资格。福利金不可提现、不可转让，最终解释权归 Spectra 所有。
 
